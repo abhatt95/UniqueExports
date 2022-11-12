@@ -15,6 +15,5 @@ We are a leading exporter of spices from India. Established in the year 1995, we
 313 BPS Plaza, Devidayal Rd, Mulund West, Mumbai 400080 India 
 
 ## Contact information 
-+91 022 25900511/12
-
-+91 9820811360
+Office landline: +91 25900511/12
+Paresh Bhatt (Proprietor cell phone number): +91 9820811360
